@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-ΔΕΝΔΡΟΛΟΓΙΑ. DODONA'S GROVE, OR, THE VOCALL FORREST.By I. H. ESQr.By T.B. for H. Mosley at the Princ
+
 1. To the Common Reader.
 
 1. To the Criticall READER.
